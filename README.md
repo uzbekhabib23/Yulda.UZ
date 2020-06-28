@@ -1,1 +1,0 @@
-# Yulda.UZ
